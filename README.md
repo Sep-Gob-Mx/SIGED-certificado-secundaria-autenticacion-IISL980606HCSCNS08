@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-IISL980606HCSCNS08
+IISL980606HCSCNS08
